@@ -1,2 +1,2 @@
 # MiniGame
-praticando (usei um pouco de IA
+praticando (usei um pouco de IA) kk
